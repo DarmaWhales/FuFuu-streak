@@ -4,3 +4,4 @@
 ✅ Hari 3 - gass streak!
 ✅ Hari 4 - okee gass streak!
 ✅ Hari 5 - yukk streak!
+✅ Hari 6 - kuyy lanjutin streak!
