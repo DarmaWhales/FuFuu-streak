@@ -5,3 +5,4 @@
 ✅ Hari 4 - okee gass streak!
 ✅ Hari 5 - yukk streak!
 ✅ Hari 6 - kuyy lanjutin streak!
+✅ Hari 7 - mantapp streak!
