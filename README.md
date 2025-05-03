@@ -7,3 +7,4 @@
 ✅ Hari 6 - kuyy lanjutin streak!
 ✅ Hari 7 - mantapp streak!
 ✅ Hari 8 - start streak!
+✅ Hari 9 - letsgoo streak!
