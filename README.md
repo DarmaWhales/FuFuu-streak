@@ -8,3 +8,4 @@
 ✅ Hari 7 - mantapp streak!
 ✅ Hari 8 - start streak!
 ✅ Hari 9 - letsgoo streak!
+✅ Hari 10 - lanjutkann streak!
