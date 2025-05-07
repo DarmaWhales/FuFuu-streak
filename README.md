@@ -11,3 +11,4 @@
 ✅ Hari 10 - lanjutkann streak!
 ✅ Hari 11 - ulang kahh streak!
 ✅ Hari 12 - okegas okegas streak!
+✅ Hari 13 - gass sekali lagi streak!
