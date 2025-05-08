@@ -12,3 +12,4 @@
 ✅ Hari 11 - ulang kahh streak!
 ✅ Hari 12 - okegas okegas streak!
 ✅ Hari 13 - gass sekali lagi streak!
+✅ Hari 14 - mahokkk streak!
